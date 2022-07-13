@@ -1,0 +1,1 @@
+# 2022-Statistical-Data-Analysis-Utilization-Competition
